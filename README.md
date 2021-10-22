@@ -1,3 +1,3 @@
 # first_repo
-first repository 
+first repository! 
 ⛵ 🍕 🥊
